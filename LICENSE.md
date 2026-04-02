@@ -1,4 +1,4 @@
-
+hidd Scripts for welcome to bloxburg - inf-money and auto-build is the ultimate solution for welcome to bloxburg players! Our scripts provide inf-money and auto-build, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your welcome to bloxburg experience today!
 
 
 ---
